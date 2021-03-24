@@ -1,3 +1,3 @@
 # 4650s20
 
-at university of colorado denver
+completed in the spring semester of 2020 at University of Colorado Denver
